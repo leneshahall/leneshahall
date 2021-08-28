@@ -1,4 +1,4 @@
-👋 Hello there!
+👋🏾 Hello there!
 
 I'm an active pursuant of new and challenging opportunities/learning experiences in the discipline of data science and project management.
 
